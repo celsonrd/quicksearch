@@ -7,7 +7,7 @@
 - Arthur 
 - Mateus Moraes
 - Diogo
-- Giovani
+- Giovani José Feitosa Cavalcanti Filho
 - Gracielle Cristinne
 
 <h4 align="center"> 
